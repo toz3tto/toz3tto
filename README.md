@@ -1,7 +1,10 @@
-
 <p align="center">
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb25xemR5cGM3MXA3Z3V3NTJhNzlsaDhraGpkamJsZWxoMHBodWYzYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/3ornk57KwDXf81rjWM/giphy.gif" alt="Star Wars GIF" width="400">
 </p>
+
+## 🌐 Idioma / Language
+- [Português](README.md)
+- [English](README-en.md)
 
 # 👋 Olá, seja bem vindo!!!
 
