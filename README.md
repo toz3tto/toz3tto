@@ -21,7 +21,7 @@ Meu nome é **Luis Fernando Tosetto**, sou de **Cascavel-PR** e tenho **32 anos*
 
 - Já **vendi passagens de ônibus**, trabalhei em **call center** e trabalhei em **supermercado**. (Eu sei, meu lugar no céu já está garantido. 😇)
 
-- **vendi passagens de ônibus**, e fiquei tão bom nisso que fui promovido alguns meses depois para atuar na área comercial. 🚀
+- **Vendi passagens de ônibus**, e fiquei tão bom nisso que fui promovido alguns meses depois para atuar na área comercial. 🚀
 
 - **Aprimorei bastante as minhas habilidades de comunicação e ganhei bastante experiencia na area comercial** então tive a oportunidade de **liderar a equipe comercial** onde eu trabalhava.
 
