@@ -27,7 +27,7 @@ Meu nome é **Luis Fernando Tosetto**, sou de **Cascavel-PR** e tenho **32 anos*
 
 - Ai veio a **pandemia**, perdi meu emprego e fiquei vários meses desempregado... e infelizmente nesse periodo perdi a minha mãe tambem. 
 
-- **Eu fui lavar carros**, era muito difícil arranjar emprego durante a pandemia e esse emprego me ajudou muito a sobreviver àquele período.
+- **Eu fui lavar carros**, era muito difícil arranjar emprego durante a pandemia e esse emprego me ajudou muito a sobreviver a àquele período.
 
 - Enquanto estava cursando a faculdade, consegui um emprego como **suporte** e, três meses depois, eu virei **desenvolvedor**. (Pensa no medo! 😱)
 
