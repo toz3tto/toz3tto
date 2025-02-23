@@ -20,23 +20,23 @@ My name is **Luis Fernando Tosetto**, I'm from **Cascavel-PR**, and I'm **32 yea
 
 ## 🖥️ My Journey
   
-- I'm an **IT technician**, but I graduated when I was young and couldn't get a job in the field. (I was very young, just **14 years old**.)
+- I am an **IT technician**, but I graduated when I was young and couldn't find a job in the field. (I was only **14 years old**!)
 
-- I've **sold bus tickets**, worked in a **call center**, and worked in a **supermarket**. (I know, my place in heaven is already guaranteed. 😇)
+- I have **sold bus tickets**, worked in a **call center**, and in a **supermarket**. *(I know, my place in heaven is already guaranteed. 😇)*
 
-- **I sold bus tickets**, and I got so good at it that I was promoted a few months later to work in the commercial area. 🚀
+- **I sold bus tickets** and got so good at it that, a few months later, I was promoted to work in the commercial department. 🚀
 
-- **I greatly improved my communication skills and gained a lot of experience in the commercial field**, so I had the opportunity to **lead the commercial team** where I worked.
+- **I greatly improved my communication skills and gained experience in the commercial area**, so I had the opportunity to **lead the commercial team** where I worked.
 
 - Then came the **pandemic**, I lost my job and was unemployed for several months... and unfortunately, during this period, I also lost my mother.
 
-- **I washed cars**, it was very hard to find a job during the pandemic, and this job helped me survive that period.
+- **I started washing cars**, it was very difficult to find a job during the pandemic, and this job helped me survive that period.
 
-- While I was in college, I got a job in **support**, and three months later, I became a **developer**. (Imagine the fear! 😱)
+- While attending college, I got a job as **support staff**, and three months later, I became a **developer**. *(Imagine the fear! 😱)*
 
-- **I'm in the last year of college**, and I consider myself a **winner** just for having survived the journey. 💪
+- **I am in my final year of college** and consider myself a **winner** just for having survived the journey. 💪
 
-- If you've read this far, know that **God** is by your side at every moment of your journey, on the brightest days and in the darkest nights. You are never alone.
+- If you have read this far, know that **God** is by your side at every moment of your journey – in the days of light and also in the darkest nights. **You are never alone.**
 
 ---
 
