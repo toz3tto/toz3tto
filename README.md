@@ -20,23 +20,23 @@ Meu nome é **Luis Fernando Tosetto**, sou de **Cascavel-PR** e tenho **32 anos*
 
 ## 🖥️ Minha Jornada
   
-- Eu sou **técnico de informática**, mas me formei quando era jovem e não conseguia emprego na área. (Eu era muito jovem, tinha **14 anos**.)
+- Eu sou **técnico de informática**, mas me formei quando era jovem e não conseguia emprego na área. (Eu tinha só **14 anos**!)
 
-- Já **vendi passagens de ônibus**, trabalhei em **call center** e trabalhei em **supermercado**. (Eu sei, meu lugar no céu já está garantido. 😇)
+- Já **vendi passagens de ônibus**, trabalhei em **call center** e **supermercado**. *(Eu sei, meu lugar no céu já está garantido. 😇)*
 
-- **Vendi passagens de ônibus**, e fiquei tão bom nisso que fui promovido alguns meses depois para atuar na área comercial. 🚀
+- **Vendi passagens de ônibus** e fiquei tão bom nisso que, poucos meses depois, fui promovido para atuar na área comercial. 🚀
 
-- **Aprimorei bastante as minhas habilidades de comunicação e ganhei bastante experiencia na area comercial** então tive a oportunidade de **liderar a equipe comercial** onde eu trabalhava.
+- **Aprimorei bastante minhas habilidades de comunicação e ganhei experiência na área comercial**, então tive a oportunidade de **liderar a equipe comercial** onde trabalhava.
 
-- Ai veio a **pandemia**, perdi meu emprego e fiquei vários meses desempregado... e infelizmente nesse periodo perdi a minha mãe tambem. 
+- Aí veio a **pandemia**, perdi meu emprego e fiquei vários meses desempregado... e, infelizmente, nesse período, perdi minha mãe também.
 
-- **Eu fui lavar carros**, era muito difícil arranjar emprego durante a pandemia e esse emprego me ajudou muito a sobreviver a àquele período.
+- **Eu fui lavar carros**, era muito difícil arranjar emprego durante a pandemia e esse trabalho me ajudou muito a sobreviver àquele período.
 
-- Enquanto estava cursando a faculdade, consegui um emprego como **suporte** e, três meses depois, eu virei **desenvolvedor**. (Pensa no medo! 😱)
+- Enquanto estava cursando a faculdade, consegui um emprego como **suporte** e, três meses depois, me tornei **desenvolvedor**. *(Pensa no frio na barriga! 😱)*
 
 - **Estou no último ano da faculdade** e me considero um **vencedor** só pelo fato de ter sobrevivido ao caminho. 💪
 
-- Se você lêu até aqui, saiba que **Deus** está ao seu lado em cada momento da sua jornada, nos dias de luz e também nas noites mais escuras. Você nunca está sozinho.
+- Se você leu até aqui, saiba que **Deus** está ao seu lado em cada momento da sua jornada – nos dias de luz e também nas noites mais escuras. **Você nunca está sozinho.**
 
 ---
 
