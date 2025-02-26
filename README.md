@@ -20,7 +20,7 @@ Meu nome é **Luis Fernando Tosetto**, sou de **Cascavel-PR** e tenho **32 anos*
 
 ## 🖥️ Minha Jornada
   
-- Eu sou **técnico de informática**, mas me formei quando era jovem e não conseguia emprego na área. (Eu tinha só **14 anos**!)
+- Eu sou **técnico de informática**, mas me formei quando era jovem e não conseguia emprego na área. (Eu tinha só **16 anos**!)
 
 - Já **vendi passagens de ônibus**, trabalhei em **call center** e **supermercado**. *(Eu sei, meu lugar no céu já está garantido. 😇)*
 
