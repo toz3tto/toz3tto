@@ -20,7 +20,7 @@ My name is **Luis Fernando Tosetto**, I'm from **Cascavel-PR**, and I'm **32 yea
 
 ## 🖥️ My Journey
   
-- I am an **IT technician**, but I graduated when I was young and couldn't find a job in the field. (I was only **14 years old**!)
+- I am an **IT technician**, but I graduated when I was young and couldn't find a job in the field. (I was only **16 years old**!)
 
 - I have **sold bus tickets**, worked in a **call center**, and in a **supermarket**. *(I know, my place in heaven is already guaranteed. 😇)*
 
