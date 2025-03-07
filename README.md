@@ -57,8 +57,9 @@ Meu nome é **Luis Fernando Tosetto**, sou de **Cascavel-PR** e tenho **32 anos*
 
 ![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=toz3tto&layout=compact&theme=radical)
 
-<p align="center">
-  <img src="https://raw.githubusercontent.com/toz3tto/toz3tto/main/dist/github-contribution-grid-snake.svg" alt="Snake animation">
+
+<p align="auto">
+  <img src="https://raw.githubusercontent.com/toz3tto/toz3tto/output/github-contribution-grid-snake-dark.svg" alt="Snake animation">
 </p>
 
 ![Profile Views](https://komarev.com/ghpvc/?username=toz3tto&color=blue&style=flat-square)
